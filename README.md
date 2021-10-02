@@ -1,3 +1,2 @@
 # elevadorpsd
-hilario te odeio
 
